@@ -1,2 +1,2 @@
-## Welcome to Tyler's Pages
+## Welcome to My Pages
 
